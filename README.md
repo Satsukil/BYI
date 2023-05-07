@@ -46,6 +46,6 @@ thanks xx
 
 ALSO, sorry if i come out as rude sometimes. I may be in a bad mood or some heart shattering things happened
 
-IF i ingore you, im either afk or asleep
+IF i ignore you, im either afk or asleep
 
-i wont be accepting random friend reqs x
+i wont be accepting random friend reqs 
