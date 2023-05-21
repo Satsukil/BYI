@@ -14,7 +14,7 @@ nsfw tntduo shippers/aggresive ship conflictor (literally go off, boundaries exi
 
 hardcore Dream fans , dnf shippers (ive seen yall in twt and ao3..yall are another breed.) ,
 
-Insensitive ppl / introj's ,
+Insensitive ppl ,
 
 INT list ;
 
@@ -32,7 +32,7 @@ THIN ICE ;
 
 Boobers and Inniters ; yeah.. some of you can be very, invading. (exempt ; Friends)
 
-tntduo shippers , wholesome ones
+shippers , 
 
 fluff dnf shippers ,
 
@@ -40,7 +40,6 @@ actually decent Dream fans ,
 
 DSMP rp ,
 
-Friend reqs ,
 
 thanks xx
 
